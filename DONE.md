@@ -1,1 +1,2 @@
 - Joffrey Baratheon (Note: Ce n'est pas Arya qui l'a tué)
+- Meryn Trant (Tué par Arya)
